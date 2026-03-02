@@ -1,6 +1,6 @@
 <div align="center">
 
-# Hey there, I'm iamthefamous 👋
+# Hey there, I'm Asylbek Zhunusov (iamthefamous) 👋
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7A800&center=true&vCenter=true&width=435&lines=Developer+%F0%9F%92%BB;Open+Source+Enthusiast+%F0%9F%8C%9F;Always+Learning+%F0%9F%8C%B1)](https://git.io/typing-svg)
 
