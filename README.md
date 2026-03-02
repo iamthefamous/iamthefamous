@@ -69,6 +69,11 @@
 
 [![GitHub](https://img.shields.io/badge/GitHub-181717?style=for-the-badge&logo=github&logoColor=white)](https://github.com/iamthefamous)
 
+📧 Gmail: [zhunusovasyl03@gmail.com](mailto:zhunusovasyl03@gmail.com)  
+🔐 ProtonMail: [zhunusov@proton.me](mailto:zhunusov@proton.me)  
+💬 WhatsApp: [+996 779 425 253](https://wa.me/996779425253)  
+✈️ Telegram: [@AsylbekZhunus](https://t.me/AsylbekZhunus)
+
 </div>
 
 ---
